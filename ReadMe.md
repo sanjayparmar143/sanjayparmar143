@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently Studing in R&W<br>👯 I’m looking to collaborate on<br>🌱 I’m currently learning
+🔭 I’m currently learning<br>👯 I’m looking to collaborate on<br>🌱
 
 
 ## 🌐 Socials:
